@@ -1,4 +1,4 @@
-## Ahmad, Erbakan, 12306435
+## Erbakan Ahmad
 
 ---
 
